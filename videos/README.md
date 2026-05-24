@@ -8,4 +8,5 @@
 - 4 - 🎬 [Crash-Team-Racing-Nitro-Fueled-All-Shortcuts-and-Tricks-(Glitch-shortcut)](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing-Nitro-Fueled-All-Shortcuts-and-Tricks-%28Glitch-shortcut%29)
 - 5 - 🎬 [Crash-Team-Racing-Nitro-Fueled-All-Shortcuts-and-Tricks](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing-Nitro-Fueled-All-Shortcuts-and-Tricks)
 - 6 - 🎬 [Crash-Team-Racing-Nitro-Fueled-Glitch-shortcuts-that-still-work-Part-2](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing-Nitro-Fueled-Glitch-shortcuts-that-still-work-Part-2)
-- 7 - 🎬 [Crash-Team-Racing：-Nitro-Fueled-Glitch-Picnic-｜-(PS4,-XBO,-Switch)-｜-MikeyTaylorGaming](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing%EF%BC%9A-Nitro-Fueled-Glitch-Picnic-%EF%BD%9C-%28PS4%2C-XBO%2C-Switch%29-%EF%BD%9C-MikeyTaylorGaming)
+- 7 - 🎬 [Crash-Team-Racing-Speedrun-Tutorial](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing-Speedrun-Tutorial)
+- 8 - 🎬 [Crash-Team-Racing：-Nitro-Fueled-Glitch-Picnic-｜-(PS4,-XBO,-Switch)-｜-MikeyTaylorGaming](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing%EF%BC%9A-Nitro-Fueled-Glitch-Picnic-%EF%BD%9C-%28PS4%2C-XBO%2C-Switch%29-%EF%BD%9C-MikeyTaylorGaming)
