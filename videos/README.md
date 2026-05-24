@@ -10,3 +10,4 @@
 - 6 - 🎬 [Crash-Team-Racing-Nitro-Fueled-Glitch-shortcuts-that-still-work-Part-2](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing-Nitro-Fueled-Glitch-shortcuts-that-still-work-Part-2)
 - 7 - 🎬 [Crash-Team-Racing-Speedrun-Tutorial](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing-Speedrun-Tutorial)
 - 8 - 🎬 [Crash-Team-Racing：-Nitro-Fueled-Glitch-Picnic-｜-(PS4,-XBO,-Switch)-｜-MikeyTaylorGaming](https://github.com/ArMdSh84/YT-DL/tree/main/videos/Crash-Team-Racing%EF%BC%9A-Nitro-Fueled-Glitch-Picnic-%EF%BD%9C-%28PS4%2C-XBO%2C-Switch%29-%EF%BD%9C-MikeyTaylorGaming)
+- 9 - 🎬 [¡¡World-Record!!-Crash-Cove-(Speed),-PB-=-1_06.82-Best-Lap-y-SL-=-0_12.54-⧸-CTR-(Mednafem)](https://github.com/ArMdSh84/YT-DL/tree/main/videos/%C2%A1%C2%A1World-Record%21%21-Crash-Cove-%28Speed%29%2C-PB-%3D-1_06.82-Best-Lap-y-SL-%3D-0_12.54-%E2%A7%B8-CTR-%28Mednafem%29)
